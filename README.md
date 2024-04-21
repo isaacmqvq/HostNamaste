@@ -10,10 +10,6 @@ HostNamaste是一家提供VPS主机、共享主机、独立服务器等各种托
 
 [https://www.hostnamaste.com/](https://www.hostnamaste.com/clients/aff.php?aff=314)
 
-## HostNamaste 优惠码
-
-本文将分享HostNamaste最新的优惠码和促销活动。
-
 ## HostNamaste 云服务器优惠活动
 
 ### HostNamaste年付特价VPS
