@@ -1,4 +1,4 @@
-# HostNamaste优惠码和2024年最新HostNamaste特价云服务器活动整理
+# HostNamaste优惠码和2025年最新HostNamaste特价云服务器活动整理
 
 ## HostNamaste 介绍
 
